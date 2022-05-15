@@ -1,4 +1,4 @@
-# My Vslidator RESUME
+# My Validator RESUME
 https://docs.google.com/document/d/1zIE2z8faee8FqM98cy4-nJeHeZKiUijuyytoLPp2_Tc/edit?usp=sharing
 
 Hello! And nice to meet you ;)
